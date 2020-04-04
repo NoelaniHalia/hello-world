@@ -1,1 +1,2 @@
-# hello-world
+# hello-world 
+My name is Noelani Ramon. I'm currently 14 and being kept home because of the coronavirus. I've decided to do something worth my time over the weeks we will be away from school. I currently plan on being a video game designer and an animator for things like short animated films. I'm not entirely sure how this program works because I've never used it before, but hopefully I get the hang of it.
